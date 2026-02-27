@@ -48,6 +48,8 @@ Para el modo nocturno:
 
 ## Bitácora de aplicación 
 
+Nota del profesor: no hay evidencia de la actividad de evaluación. No se presentó a la sustentación
 
 
 ## Bitácora de reflexión
+
